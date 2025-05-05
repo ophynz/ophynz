@@ -6,7 +6,7 @@
 
 <h2 align="center">👤 About Me 🚀</h2>
 
-* Just a teenager ✨.
+* 17 yo lol ✨.
 * Huge fan of video game music 🎮🎶 (like 'The Rebel Path' or 'Chippin In' from Cyberpunk) and catchy music (like 'Dance With You' or 'Make You Believe in Love' by Marcus & Martinus or 'Runaway' by Aurora 🎧).
 * I enjoy playing games 🕹️ (like Brawl Stars, CS2, Roblox, etc.) and watching movies and series 🎬🍿 (like Breaking Bad,Marvel movies, Resident Evil, etc.).
 * I like working in a team 🤝 and alone 🧘‍♂️.
